@@ -1,1 +1,1 @@
-# Project-C26-by-Desmond
+# Project C26 by Desmond
